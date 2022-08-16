@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kiera-22
+- 👀 I’m interested in marvel
+- 🌱 I’m currently learning how to build my own AI, yes like JARVIS/FRIDAY from marvel
+- 📫 How to reach me 22elizabeth.evans22@gmail.com
